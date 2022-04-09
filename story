@@ -1,0 +1,1 @@
+little red riding hood was told granny was sick by her mom. She made some chicken soup to make granny feel better. 
